@@ -4,7 +4,7 @@ Communications, including, but not limited to, tweets, retweets, dm's, posts and
 
 ## Not your attorney
 
-I do not currently maintain a license to practice law. I am not able to provide you with legal advice, and I am not an attorney.  
+I do not currently maintain a license to practice law. I am not able to provide you with legal advice, and I am not your attorney.  
 
 ## In fact, not any advice
 
