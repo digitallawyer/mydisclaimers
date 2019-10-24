@@ -1,10 +1,10 @@
-## Not legal advice
-
-Communications, including, but not limited to, tweets, retweets, dm's, posts and emails ("Communications") are not, and are not intended to, constitute legal advice.
-
 ## Not your attorney
 
 I do not currently maintain a license to practice law. I am not able to provide you with legal advice, and I am not your attorney.  
+
+## Not legal advice
+
+Communications, including, but not limited to, tweets, retweets, dm's, posts and emails ("Communications") are not, and are not intended to, constitute legal advice. 
 
 ## In fact, not any advice
 
