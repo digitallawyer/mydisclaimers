@@ -1,6 +1,6 @@
 ## Not legal advice
 
-Communications, including, but not limited to, tweets, retweets, dm's, posts and emails ("Communications") are not, and are not intended to, constitute legal advice. 
+Communications, including, but not limited to, tweets, retweets, dm's, posts and emails ("Communications") are not, and are not intended to, constitute legal advice.
 
 ## Not your attorney
 
